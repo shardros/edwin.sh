@@ -1,7 +1,10 @@
-# Open offer
+# Standing invitation
 
-Hello World!
+**This is a standing invitation if you want to talk about software or
+engineering I want to talk to you.**
 
-Would you like?
+My email address is edwin@ on this domain.
 
-Testing 123
+I always find it interesting to hear from new people. If you are in the East of
+England and want to get coeffe sometime I am interested too.
+
